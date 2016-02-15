@@ -10,7 +10,7 @@ Slutligen har blivit jag trött och hungrig. Lyckligtvis tvärs över gatan såg vi 
 
 Menyn i det café var mycket enkelt: färska bagels och varmt mjölk direkt från gård.
 
-Jag vet inte heller dessa bagel och glas mjölk var så läckra eller jag var bara så trött, men men jag minns fortfarande det maten  efter 30 år.
+Jag vet inte heller dessa bagel och glas mjölk var så läckra eller jag var bara så trött, men men jag minns fortfarande den maten  efter 30 år.
 
 Jag minns solen skiner i fönstren, höga stolar och tabeller finns i liten rummet, jag minns lukten av absolut färsk mjölk och nybakade bagels. Men jag kommer inte ihåg adressen till det caféet för att ta mina barn där någon dag.
 

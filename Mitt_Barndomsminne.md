@@ -6,7 +6,7 @@ Jag har glömt hur den dag började, jag minns inte hur den dag slutade också. Men
 
 Det var söndag och kastanjer var i blommor. Bästa tiden för att besöka Kyiv! Min mamma tog mig på en vanlig promenad i centrum av staden. Vi promenerade runt i central torget och vi följde små gatorna i gamla stan. Jag sprang på trottoarer under 3 timmar i raden.
 
-Slutligen blev jag trött och hungrig. Lyckligtvis tvärs över gatan såg vi litet café och åkte där.
+Slutligen blev jag trött och hungrig. Lyckligtvis tvärs över gatan såg vi litet caféet och åkte där.
 
 Menyn i det caféet var mycket enkel: färska bagels och varmt mjölk direkt från gård.
 

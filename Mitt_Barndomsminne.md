@@ -1,20 +1,19 @@
 # Mitt ljusaste barndomsminne
 
-I was born in Kyiv, Ukraine. And my entire childhood was spent there. Kyiv is a big city, the capital, so many things was going on there — same as in many cities and many countries. But one thing I have experienced there, was so simple, so bright and so unique, could not be found and experienced anywhere else in the world. This story is about exactly this day somewhere around late spring 30 years ago.
+Jag föddes i Kyiv, i Ukraina. Min hela barndom spenderade där. Kyiv är en stor fin stad, huvudstad av Ukraina. Så många saker pågår där, men en sak som jag har upplevt, var så enkelt, så ljust och så unik, kunde inte hittas någon annanstans i världen. Denna historia handlar i våren för 30 år sedan.
 
-I have already forgot how this day started, I don't remember how it ended as well. But what happened in the noon seems to be will stay with me forever. 
+Jag har glömt hur den dag började, jag minns inte hur den dag slutade också. Men vad som hände i middagstid ska stanna med mig för hela livet.
 
-It was Sunday and chestnuts was in bloom. Best time to explore Kyiv! And my mom took me on a regular walk in the center of the city. We roamed around central square, we were following small streets of old town. I was running on sidewalks making pigeons fly away. For 3 hours in the row.
+Det var söndag och kastanjer var i blommor. Bästa tiden för att besöka Kyiv! Min mamma tog mig på en vanlig promenad i centrum av staden. Vi promenerade runt i central torget och vi följde små gatorna i gamla stan. Jag sprang på trottoarer under 3 timmar i raden.
 
-Finally I get really tired and started being hungry. Luckily right across the street we saw small cafe and went there.
+Slutligen blev jag trött och hungrig. Lyckligtvis tvärs över gatan såg vi litet café och åkte där.
 
-Menu in that cafe was very simple: fresh bagels with poppy-seed and hot boiled milk right from suburbs farm.
+Menyn i det caféet var mycket enkel: färska bagels och varmt mjölk direkt från gård.
 
-I don't know, either these bagel and glass of milk was so tasty or I was just so tired, but memories about this moment still with me after 30 years.
+Jag vet inte heller dessa bagel och glas mjölk var så läckra eller jag var bara så trött, men minnen om detta måltid fortfarande med mig efter 30 år.
 
-I remember sun in the windows and tall chairs and tables in the room. I remember smell of absolutely fresh milk and just baked bagels. Through I don't remember address of that cafe to take my kids there.
+Jag minns solen skiner i fönstren, höga stolar och tabeller finns i smått rummet, jag minns lukten av absolut färsk mjölk och bara bakade bagels. Men jag kommer inte ihåg adressen till det caféet för att ta mina barn där någon dag.
 
-I bet it would be nice to take them to walk in Kyiv with chestnuts in bloom, let them run on sidewalks, drink fresh milk, ate warm bagels and sleep on their mom knees on their way home.
+Jag slår vad om det skulle vara trevligt att promenera i Kyiv när kastanjer i blommor, att låta dem springa på trottoarer, dricka färsk mjölk, åt varma bagels och sova på deras mamma knä på väg hem.
 
-As I did 30 years ago.
-
+Som jag gjorde för 30 år sedan.

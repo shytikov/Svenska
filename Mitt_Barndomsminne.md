@@ -1,8 +1,8 @@
 # Mitt ljusaste barndomsminne
 
-Jag föddes i Kyiv, i Ukraina. Min hela barndom spenderade där. Kyiv är en stor och fin stad, huvudstad av Ukraina. Så många saker pågår där, men en sak som jag har upplevt, var så enkelt, så ljust och så unikt, kunde inte hittas någon annanstans i världen. Denna historia handlar i våren för 30 år sedan.
+Jag föddes i Kyiv. Den är en stor och fin stad, huvudstad av Ukraina. Min hela barndom spenderade där. Så många saker pågår där, men en sak som jag har upplevt, var så enkelt, så ljust och så unikt, kunde inte hittas någon annanstans i världen...
 
-Jag har glömt hur den dag började, jag minns inte hur den dag slutade också. Men vad som hände i middagstid ska stanna med mig för hela livet.
+Denna historia handlar i våren för 30 år sedan. Jag har glömt hur den dag började, jag minns inte hur den dag slutade också. Men vad som hände i middagstid ska stanna med mig för hela livet.
 
 Det var söndag och kastanjer var i blommor. Bästa tiden för att besöka Kyiv! Min mamma tog mig på en vanlig promenad i centrum av staden. Vi promenerade runt i central torget och vi följde små gatorna i gamla stan. Jag sprang på trottoarer under 3 timmar i raden.
 

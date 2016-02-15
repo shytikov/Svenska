@@ -1,19 +1,19 @@
 # Mitt ljusaste barndomsminne
 
-Jag föddes i Kyiv, i Ukraina. Min hela barndom spenderade där. Kyiv är en stor fin stad, huvudstad av Ukraina. Så många saker pågår där, men en sak som jag har upplevt, var så enkelt, så ljust och så unik, kunde inte hittas någon annanstans i världen. Denna historia handlar i våren för 30 år sedan.
+Jag fÃ¶ddes i Kyiv, i Ukraina. Min hela barndom spenderade dÃ¤r. Kyiv Ã¤r en stor fin stad, huvudstad av Ukraina. SÃ¥ mÃ¥nga saker pÃ¥gÃ¥r dÃ¤r, men en sak som jag har upplevt, var sÃ¥ enkelt, sÃ¥ ljust och sÃ¥ unik, kunde inte hittas nÃ¥gon annanstans i vÃ¤rlden. Denna historia handlar i vÃ¥ren fÃ¶r 30 Ã¥r sedan.
 
-Jag har glömt hur den dag började, jag minns inte hur den dag slutade också. Men vad som hände i middagstid ska stanna med mig för hela livet.
+Jag har glÃ¶mt hur den dag bÃ¶rjade, jag minns inte hur den dag slutade ocksÃ¥. Men vad som hÃ¤nde i middagstid ska stanna med mig fÃ¶r hela livet.
 
-Det var söndag och kastanjer var i blommor. Bästa tiden för att besöka Kyiv! Min mamma tog mig på en vanlig promenad i centrum av staden. Vi promenerade runt i central torget och vi följde små gatorna i gamla stan. Jag sprang på trottoarer under 3 timmar i raden.
+Det var sÃ¶ndag och kastanjer var i blommor. BÃ¤sta tiden fÃ¶r att besÃ¶ka Kyiv! Min mamma tog mig pÃ¥ en vanlig promenad i centrum av staden. Vi promenerade runt i central torget och vi fÃ¶ljde smÃ¥ gatorna i gamla stan. Jag sprang pÃ¥ trottoarer under 3 timmar i raden.
 
-Slutligen blev jag trött och hungrig. Lyckligtvis tvärs över gatan såg vi litet café och åkte där.
+Slutligen blev jag trÃ¶tt och hungrig. Lyckligtvis tvÃ¤rs Ã¶ver gatan sÃ¥g vi litet cafÃ© och Ã¥kte dÃ¤r.
 
-Menyn i det caféet var mycket enkel: färska bagels och varmt mjölk direkt från gård.
+Menyn i det cafÃ©et var mycket enkel: fÃ¤rska bagels och varmt mjÃ¶lk direkt frÃ¥n gÃ¥rd.
 
-Jag vet inte heller dessa bagel och glas mjölk var så läckra eller jag var bara så trött, men minnen om detta måltid fortfarande med mig efter 30 år.
+Jag vet inte heller dessa bagel och glas mjÃ¶lk var sÃ¥ lÃ¤ckra eller jag var bara sÃ¥ trÃ¶tt, men minnen om detta mÃ¥ltid fortfarande med mig efter 30 Ã¥r.
 
-Jag minns solen skiner i fönstren, höga stolar och tabeller finns i smått rummet, jag minns lukten av absolut färsk mjölk och bara bakade bagels. Men jag kommer inte ihåg adressen till det caféet för att ta mina barn där någon dag.
+Jag minns solen skiner i fÃ¶nstren, hÃ¶ga stolar och tabeller finns i smÃ¥tt rummet, jag minns lukten av absolut fÃ¤rsk mjÃ¶lk och bara bakade bagels. Men jag kommer inte ihÃ¥g adressen till det cafÃ©et fÃ¶r att ta mina barn dÃ¤r nÃ¥gon dag.
 
-Jag slår vad om det skulle vara trevligt att promenera i Kyiv när kastanjer i blommor, att låta dem springa på trottoarer, dricka färsk mjölk, åt varma bagels och sova på deras mamma knä på väg hem.
+Jag slÃ¥r vad om det skulle vara trevligt att promenera i Kyiv nÃ¤r kastanjer i blommor, att lÃ¥ta dem springa pÃ¥ trottoarer, dricka fÃ¤rsk mjÃ¶lk, Ã¥t varma bagels och sova pÃ¥ deras mamma knÃ¤ pÃ¥ vÃ¤g hem.
 
-Som jag gjorde för 30 år sedan.
+Som jag gjorde fÃ¶r 30 Ã¥r sedan.

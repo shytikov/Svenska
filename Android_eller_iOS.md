@@ -1,17 +1,8 @@
-# Apple or Google?
+# Android eller iOS?
 
-It's very hard to answer on question, which phone is better: iPhone or Android. Just because the question itself is not correct. To observe whole picture we always need to specify at least:
+En fråga "Vad är bättre Android eller iOS?" är mycket svart. Jag läste många artiklar om det på internet, jag även körde min en egen analys av den har frågan som bada Android och iOS användare. Men hittade svaret inte... Det finns inte rätt svar på det, man bara kan ge sina subjektiva tankar. Så jag skulle vilja dela mina subjektiva tankar med ni.
 
-* which versions of operation systems we're comparing;
-* which phone generations we're talking about;
-* for which purpose phone is going to to be used;
+Bada Android och iOS är inte så gammal. iOS föddes först och inte har några verkliga konkurrenter för ett år och tre månader, men i alla fall Android är fyra gånger mer populär än iOS nu. Tanka: om du se en iPhone, du kan förvänta att se fyra Android telefoner runt. Så vem är bäst?
 
-And we should not forget, that all discussions on this topic are deeply subjective.
+Du kan säja iOS är snyggare! Men vänta litte! Detta är sant att Androids första versionen var ful, men Android KitKat, Lolipop och Marshmallow är mycket vackra. Anpassade Andoid, som MIUI, FlymeOS, CyanogenMod är även bättre! Nya versionen av iOS är ful nu faktiskt, därför att de användar för mycket olika färger i UI. Ämföra bilder och säja vilken UI du gillar mer!
 
-Let's start from first point — operation systems. iOS was was first, it was released in March 2008. Android came second. It was released in September same year. But we need to admit that functionality that first versions of both operation systems was not great. There was no support of application in iOS at all and Android API was far from perfection. Situation become better with time: Apple added support of phone applications, and Google managed to make their API stable. At iOS version 6 and Android version 4 I think systems become equaly usable and friendly to users. But than Steve Jobs died and new version of iOS came without his supervision and it was fail. iOS version 7, 8 and 9 has no new important improvement, less friendly to users, has worse design and performance. While Android 5, 6 and upcoming version 7 is constantly improving in all areas.
-
-If we would talk about hardware, Apple phones are almost aways win competition. They have better screens and CPU than Android phones, but they also always several times more expensive. In the past iPhones performed better than Android phones, and had better batteries, but now it's not true anymore — average Android performs better than most iPhone and has more powerful battery.
-
-In terms of usage, due to large amound of developers writing application for Android — almost in all areas it's better to use Android phone for solving tasks. One exception is sound processing. In this area Android fails completly. For this puprose it's better to use iPhone.
-
-Due to the last advantage I bought iPhone I'm using now. Since I play guitar and use phone as portable aplifier, iPhone was the only choice. But despite this I'm going to switch to Android soon, since I cannot stand iPhone weaknesses.

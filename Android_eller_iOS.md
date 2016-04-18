@@ -1,8 +1,14 @@
 # Android eller iOS?
 
-En fråga "Vad är bättre Android eller iOS?" är mycket svart. Jag läste många artiklar om det på internet, jag även körde min en egen analys av den har frågan som bada Android och iOS användare. Men hittade svaret inte... Det finns inte rätt svar på det, man bara kan ge sina subjektiva tankar. Så jag skulle vilja dela mina subjektiva tankar med ni.
+En frÃ¥ga "Vad Ã¤r bÃ¤ttre Android eller iOS?" Ã¤r mycket svart. Jag lÃ¤ste mÃ¥nga artiklar om det pÃ¥ internet, jag Ã¤ven kÃ¶rde min en egen analys av den har frÃ¥gan som bada Android och iOS anvÃ¤ndare. Men hittade svaret inte... Det finns inte rÃ¤tt svar pÃ¥ det, man bara kan ge sina subjektiva tankar. SÃ¥ jag skulle vilja dela mina subjektiva tankar med ni.
 
-Bada Android och iOS är inte så gammal. iOS föddes först och inte har några verkliga konkurrenter för ett år och tre månader, men i alla fall Android är fyra gånger mer populär än iOS nu. Tanka: om du se en iPhone, du kan förvänta att se fyra Android telefoner runt. Så vem är bäst?
+Bada Android och iOS Ã¤r inte sÃ¥ gammal. iOS fÃ¶ddes fÃ¶rst och inte har nÃ¥gra verkliga konkurrenter fÃ¶r ett Ã¥r och tre mÃ¥nader, men i alla fall Android Ã¤r fyra gÃ¥nger mer populÃ¤r Ã¤n iOS nu. Tanka: om du se en iPhone, du kan fÃ¶rvÃ¤nta att se fyra Android telefoner runt. SÃ¥ vem Ã¤r bÃ¤st?
 
-Du kan säja iOS är snyggare! Men vänta litte! Detta är sant att Androids första versionen var ful, men Android KitKat, Lolipop och Marshmallow är mycket vackra. Anpassade Andoid, som MIUI, FlymeOS, CyanogenMod är även bättre! Nya versionen av iOS är ful nu faktiskt, därför att de användar för mycket olika färger i UI. Ämföra bilder och säja vilken UI du gillar mer!
+Du kan sÃ¤ja iOS Ã¤r snyggare! Men vÃ¤nta litte! Detta Ã¤r sant att Androids fÃ¶rsta versionen var ful, men senare versionen som heter KitKat, Lolipop och Marshmallow Ã¤r mycket vackra. Anpassade Andoid, som heter MIUI, FlymeOS, CyanogenMod Ã¤r Ã¤ven bÃ¤ttre! Nya versionen av iOS Ã¤r ful nu faktiskt, dÃ¤rfÃ¶r att de anvÃ¤ndar fÃ¶r mycket olika fÃ¤rger i UI. JÃ¤mfÃ¶ra bilder och sÃ¤ja vilken UI du gillar mer!
+
+Om man talar om teknisk specifikationer allt beror pÃ¥ vad Ã¤r viktigt fÃ¶r person:
+* Vill du fÃ¥ vacker bilder? iPhone Ã¤r bÃ¤ttre val i flesta fall. 
+* Vill du ha mer minne i telefon? GÃ¶r med Android.
+* Vill du koppla med annan Apple varor och ha ingen problem? KÃ¶p iPhone.
+* Vill du utvecklar applikationer pÃ¥ Windows eller Linux? KÃ¶p Android.
 
